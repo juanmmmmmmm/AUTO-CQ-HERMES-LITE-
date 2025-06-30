@@ -1,0 +1,1 @@
+# AUTO-CQ-HERMES-LITE-
